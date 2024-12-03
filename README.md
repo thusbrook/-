@@ -79,3 +79,4 @@
 ## 相关链接
 
 1. [三生石全收集攻略-游民星空](https://www.gamersky.com/handbook/202311/1674078.shtml)
+2. [宝藏位置介绍-游侠网](https://gl.ali213.net/html/2023-11/1218507.html)
